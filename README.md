@@ -1,2 +1,0 @@
-# anajy
-Anajy
